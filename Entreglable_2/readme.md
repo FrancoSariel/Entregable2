@@ -1,1 +1,0 @@
-Segundo entregable de coderhouse
